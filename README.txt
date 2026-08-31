@@ -137,6 +137,10 @@ my heart spiked:
 lovestruck for the rest of my 
  life. 
 
+I. 
+a he becomes a doer 
+over a her. 
+
            Trials 
            ------ 
 
