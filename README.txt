@@ -121,6 +121,10 @@ when I can just keep her in mind.
 when I can give her what the space 
  is worth. 
 
+I. 
+I overuse her name. 
+nothing feels the same. 
+
            Trials 
            ------ 
 
