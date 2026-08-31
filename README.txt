@@ -47,7 +47,9 @@ connection.
 
 I. 
 her name needs redirection 
-for her protection. 
+for her protection 
+in this connection, 
+I made for my satisfaction. 
 
 II. 
 when I center into my emotions, 
