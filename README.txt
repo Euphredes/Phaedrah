@@ -220,6 +220,12 @@ hand in hand, we're together
    without doubt. 
 no item keeping me busy. 
 
+I. 
+this possession 
+is my only possession. 
+the rest are payments 
+over previous intents. 
+
            Appendix 
            -------- 
 
