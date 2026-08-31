@@ -117,6 +117,13 @@ of what the street pours...
 be hers evermore 
 as the rest nevermores. 
 
+I. 
+voices and a host 
+are touch and go. 
+sight, taste, and smell 
+are dispensable. 
+twenty-four/seven composed. 
+
 
            Loyalty 
 
