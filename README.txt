@@ -40,6 +40,17 @@ this gypsy only wants to will one thing.
 a thing for being 
 witchbound because it sings. 
 
+III. 
+when I center into my emotions, 
+heavy for her. 
+moods finalize my life, 
+seducing me to live slow. 
+
+loveties won't let go, 
+stronger than I've ever known. 
+scatter these feelings into the water, 
+the invisible energy lulling us all. 
+
            Love 
 
 I. 
