@@ -75,6 +75,19 @@ her voice is pitched to strum my
  nerves, 
 a siren guarded by everyone. 
 
+I. 
+hands to my chest, 
+to my belly. 
+incoming rest 
+to satisfy. 
+
+I. 
+I take all the blame for this 
+ affair. 
+although blame is not taken up 
+ by my affairs: 
+this happens; 
+she is there. 
 
            Trials 
 
