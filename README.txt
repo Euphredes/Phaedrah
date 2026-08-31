@@ -96,6 +96,16 @@ put her in my breath
 unto death. 
 feelings for her are how I stroll. 
 
+I. 
+I chase other behaviors 
+as I close in on Phaedrah. 
+
+I. 
+dear purple and silver 
+I'm your walking blues, 
+here and there; 
+stay with me and stay true. 
+
            Trials 
 
 I. 
