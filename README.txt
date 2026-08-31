@@ -27,7 +27,17 @@ Appendix                             V.
            ------------ 
 
 A spellbook of poems for a witch, 
-Phaedrah. 
+Phaedrah. The work is confessional by 
+nature. The work targets a singular goal: 
+Protection. The protection is built by me 
+such that I can depend on my feelings for 
+her with little to no backfire from her 
+end. The support for the protection is 
+my feelings, Love. The need for the 
+protection comes from the Trials. The 
+promises for the protection are in 
+Loyalty. 
+
 
            Protection 
 
