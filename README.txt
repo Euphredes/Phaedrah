@@ -100,6 +100,13 @@ are the most reliable dose
 of happiness 
 that made my attention arose. 
 
+I. 
+she finds me outside, 
+black as shade in the sun. 
+telling me how to deliver my gifts, 
+lifting my hopes high enough to 
+ carry my loveaches. 
+
            Trials 
            ------ 
 
