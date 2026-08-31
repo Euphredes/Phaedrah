@@ -58,8 +58,21 @@ my anchor.
 my answer. 
 my prayers. 
 
+I. 
+she owns the room patiently, 
+a purple and silver rockstar. 
+her voice is pitched to strum my 
+ nerves, 
+a siren guarded by everyone. 
+
 
            Trials 
+
+I. 
+cell 114 in lenox, 
+decorated with mental art. 
+cradled by her, 
+unsure of the spirit at hand. 
 
 I. 
 madspells on the road. 
