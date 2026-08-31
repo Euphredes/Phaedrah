@@ -81,6 +81,12 @@ to be her greatest effect.
 to be her cherished. 
 to shed old molds. 
 
+I. 
+hunger for more 
+of what the street pours... 
+be hers evermore 
+as the rest nevermores. 
+
 
            Loyalty 
 
