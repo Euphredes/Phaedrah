@@ -178,6 +178,11 @@ I feel her presence closely,
    inwardly possessed. 
 I want no other nearby. 
 
+I. 
+hand in hand, we're together 
+   without doubt. 
+no item keeping me busy. 
+
            Appendix 
            -------- 
 
