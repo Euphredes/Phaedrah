@@ -125,6 +125,11 @@ I.
 I overuse her name. 
 nothing feels the same. 
 
+I. 
+reassurance is most compatible 
+ with love. 
+sustaining what is or was. 
+
            Trials 
            ------ 
 
