@@ -144,6 +144,10 @@ shake the excess weight
 into the atmosphere to be 
  absorbed. 
 
+I. 
+of you only, 
+do I think highly 
+and feel wildly. 
 
            Appendix 
 
