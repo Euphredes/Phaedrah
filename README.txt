@@ -68,6 +68,10 @@ although blame is not taken up
 this happens; 
 she is there. 
 
+IV. 
+love demands too much. 
+so I keep her in my touch. 
+
            Love 
            ---- 
 
