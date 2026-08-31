@@ -89,6 +89,13 @@ although blame is not taken up
 this happens; 
 she is there. 
 
+I. 
+there are seasons for such and so. 
+there is breathing for all to go. 
+put her in my breath 
+unto death. 
+feelings for her are how I stroll. 
+
            Trials 
 
 I. 
