@@ -40,6 +40,7 @@ Loyalty.
 
 
            Protection 
+           ---------- 
 
 I. 
 her name needs redirection 
@@ -62,6 +63,7 @@ scatter these feelings into the water,
 the invisible energy lulling us all. 
 
            Love 
+           ---- 
 
 I. 
 my anchor. 
@@ -107,6 +109,7 @@ here and there;
 stay with me and stay true. 
 
            Trials 
+           ------ 
 
 I. 
 cell 114 in lenox, 
@@ -134,8 +137,8 @@ sight, taste, and smell
 are dispensable. 
 twenty-four/seven composed. 
 
-
            Loyalty 
+           ------- 
 
 I. 
 weave my feelings into a cord. 
@@ -150,6 +153,7 @@ do I think highly
 and feel wildly. 
 
            Appendix 
+           -------- 
 
 I. 
 The following table lists structures for poems.  
