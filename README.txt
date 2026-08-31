@@ -18,10 +18,10 @@ Location: Philadelphia, PA.
 
 Introduction                         - 
 Protection                           I. 
-Love                                 II. 
-Trials                               III. 
-Loyalty                              IV. 
-Appendix                             V. 
+Love                                 I. 
+Trials                               I. 
+Loyalty                              I. 
+Appendix                             I. 
 
            Introduction 
            ------------ 
@@ -49,7 +49,7 @@ I.
 her name needs redirection 
 for her protection. 
 
-III. 
+II. 
 when I center into my emotions, 
 heavy for her. 
 moods that finalize my life, 
@@ -60,7 +60,7 @@ stronger than I've ever known.
 scatter these feelings into the water, 
 the invisible energy lulling us all. 
 
-I. 
+III. 
 I take all the blame for this 
  affair. 
 although blame is not taken up 
@@ -89,10 +89,16 @@ to my belly.
 incoming rest 
 to satisfy. 
 
-II. 
+I. 
 this gypsy only wants to will one thing. 
 a thing for being 
 witchbound because it sings. 
+
+I. 
+memories of her 
+are the most reliable dose 
+of happiness 
+that made my attention arose. 
 
            Trials 
            ------ 
@@ -133,6 +139,18 @@ I'm your walking blues,
 here and there; 
 stay with me and stay true. 
 
+I. 
+the fool in me 
+doesn't focus on her 
+just to see 
+I don't stop delivering to her. 
+
+I. 
+the man in me 
+can't find work 
+better than 
+what these feelings are worth. 
+
            Loyalty 
            ------- 
 
@@ -154,6 +172,11 @@ there is breathing for all to go.
 put her in my breath, 
 unto death. 
 feelings for her are how I stroll. 
+
+I. 
+I feel her presence closely, 
+   inwardly possessed. 
+I want no other nearby. 
 
            Appendix 
            -------- 
