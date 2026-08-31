@@ -26,7 +26,7 @@ Appendix                             V.
            Introduction 
            ------------ 
 
-A spellbook of poems for a witch, 
+A spellbook of poems over a witch, 
 Phaedrah. The work is confessional by 
 nature. The work targets a singular goal: 
 Protection. The protection is built by me 
@@ -38,6 +38,9 @@ protection comes from the Trials. The
 promises for the protection are in 
 Loyalty. 
 
+These poems are directed at her, but 
+they are for me: for my end of this 
+connection. 
 
            Protection 
            ---------- 
@@ -46,21 +49,24 @@ I.
 her name needs redirection 
 for her protection. 
 
-II. 
-this gypsy only wants to will one thing. 
-a thing for being 
-witchbound because it sings. 
-
 III. 
 when I center into my emotions, 
 heavy for her. 
-moods finalize my life, 
+moods that finalize my life, 
 seducing me to live slow. 
 
 loveties won't let go, 
 stronger than I've ever known. 
 scatter these feelings into the water, 
 the invisible energy lulling us all. 
+
+I. 
+I take all the blame for this 
+ affair. 
+although blame is not taken up 
+ by my affairs: 
+this happens; 
+she is there. 
 
            Love 
            ---- 
@@ -83,30 +89,10 @@ to my belly.
 incoming rest 
 to satisfy. 
 
-I. 
-I take all the blame for this 
- affair. 
-although blame is not taken up 
- by my affairs: 
-this happens; 
-she is there. 
-
-I. 
-there are seasons for such and so. 
-there is breathing for all to go. 
-put her in my breath 
-unto death. 
-feelings for her are how I stroll. 
-
-I. 
-I chase other behaviors 
-as I close in on Phaedrah. 
-
-I. 
-dear purple and silver 
-I'm your walking blues, 
-here and there; 
-stay with me and stay true. 
+II. 
+this gypsy only wants to will one thing. 
+a thing for being 
+witchbound because it sings. 
 
            Trials 
            ------ 
@@ -137,6 +123,16 @@ sight, taste, and smell
 are dispensable. 
 twenty-four/seven composed. 
 
+I. 
+I chase other behaviors 
+as I close in on Phaedrah. 
+
+I. 
+dear purple and silver 
+I'm your walking blues, 
+here and there; 
+stay with me and stay true. 
+
            Loyalty 
            ------- 
 
@@ -148,9 +144,16 @@ into the atmosphere to be
  absorbed. 
 
 I. 
-of you only, 
+of her only, 
 do I think highly 
 and feel wildly. 
+
+I. 
+there are seasons for such and so. 
+there is breathing for all to go. 
+put her in my breath, 
+unto death. 
+feelings for her are how I stroll. 
 
            Appendix 
            -------- 
