@@ -21,8 +21,7 @@ Protection                           I.
 Love                                 II. 
 Trials                               III. 
 Loyalty                              IV. 
- Fin                                 V. 
-Appendix                             VI. 
+Appendix                             V. 
 
            Introduction 
            ------------ 
@@ -33,16 +32,30 @@ Phaedrah.
            Protection 
 
 I. 
+her name needs redirection 
+for her protection. 
 
+II. 
+this gypsy only wants to will one thing. 
+a thing for being 
+witchbound because it sings. 
 
            Love 
 
 I. 
+my anchor. 
+my answer. 
+my prayers. 
 
 
            Trials 
 
 I. 
+madspells on the road. 
+lovespells where we hold. 
+to be her greatest effect. 
+to be her cherished. 
+to shed old molds. 
 
 
            Loyalty 
@@ -53,4 +66,14 @@ I.
            Appendix 
 
 I. 
+The following table lists structures for poems.  
 
+Poems    
+        Irish        English        Spanish         Japanese
+             A              A              Noun             Five 
+             A              B              Adjective        Two 
+             B              A              Verb             Five 
+             B              B              Adverb 
+             A              C 
+                            C 
+Pattern:     Endrhyme       Endrhyme       Speech           Meter
