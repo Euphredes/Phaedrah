@@ -188,6 +188,12 @@ can't find work
 better than 
 what these feelings are worth. 
 
+I. 
+the voice shuffles 
+to other speakers, 
+like a bird ruffles 
+his feathers. 
+
            Loyalty 
            ------- 
 
