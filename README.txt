@@ -111,6 +111,14 @@ telling me how to deliver my gifts,
 lifting my hopes high enough to 
  carry my loveaches. 
 
+I. 
+how could I leave these feelings 
+ behind? 
+when they're so sore for her. 
+when I can just keep her in mind. 
+when I can give her what the space 
+ is worth. 
+
            Trials 
            ------ 
 
