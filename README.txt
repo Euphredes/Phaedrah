@@ -130,6 +130,13 @@ reassurance is most compatible
  with love. 
 sustaining what is or was. 
 
+I. 
+the first time she told my eyes 
+ what she likes, 
+my heart spiked: 
+lovestruck for the rest of my 
+ life. 
+
            Trials 
            ------ 
 
