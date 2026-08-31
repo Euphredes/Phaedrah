@@ -85,6 +85,11 @@ to shed old molds.
            Loyalty 
 
 I. 
+weave my feelings into a cord. 
+tether me to her. 
+shake the excess weight 
+into the atmosphere to be 
+ absorbed. 
 
 
            Appendix 
