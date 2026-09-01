@@ -13,24 +13,6 @@ Author: Nick Morris.
 Release: Tuesday, September 1st 2026. 
 Location: Philadelphia, PA. 
 
-
-           Practices
-           Affirmations 
-           Loyalty 
-
-           Internal 
-           Outside 
-           Indoors 
-           Trials 
-
-           Sore 
-           Memories 
-           Love 
-
-           Bridgewater 
-           Nonmaterial 
-
-
            Contents 
            -------- 
 
