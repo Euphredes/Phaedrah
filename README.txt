@@ -140,10 +140,15 @@ in her mind to become
 XI. 
 in group, 
 she is queen, 
-keeping everyone up. 
-all discussed and foreseen. 
-routine secures her pay. 
-admiration secures her ways. 
+keeping everyone 
+ up. 
+all discussed 
+ and foreseen. 
+routine secures 
+ her pay. 
+admiration 
+ secures her 
+ ways. 
 
            Love 
            ---- 
