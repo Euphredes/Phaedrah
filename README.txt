@@ -10,7 +10,7 @@ Licensing: Content in this text file
            Commons Attribution 4.0 
            International license. 
 Author: Nick Morris. 
-Release: Monday, August 31st 2026. 
+Release: Tuesday, September 1st 2026. 
 Location: Philadelphia, PA. 
 
            Contents 
@@ -27,9 +27,8 @@ Appendix                             I.
            Introduction 
            ------------ 
 
-A spellbook of poems over a witch, 
-Phaedrah. The work is confessional by 
-nature. The work targets a singular goal: 
+Spells and poems over a witch, 
+Phaedrah. The work targets a singular goal: 
 Protection. The protection is built by me 
 such that I can depend on my feelings for 
 her with little to no backfire from her 
@@ -50,7 +49,7 @@ I.
 My first practice with Phaedrah was to 
 be possessed: 
 Poet, Muse: 
-Phaedrah Morris. 
+Phaedrah, Morris. 
 
            Protection 
            ---------- 
@@ -84,6 +83,27 @@ V.
 love demands too much. 
 so I keep her in my touch. 
 
+VI. 
+she resides in my haptics 
+and acoustics, 
+to stay closest. 
+I bear the weight of my interests. 
+
+VII. 
+weave my feelings into a cord. 
+tether me to her. 
+shake the excess weight 
+into the atmosphere to be 
+ absorbed. 
+
+VIII. 
+a mother 
+with plenty of time 
+to be bothered; 
+and I climb 
+to befriend, 
+if no other end. 
+
            Love 
            ---- 
 
@@ -106,7 +126,7 @@ incoming rest
 to satisfy. 
 
 I. 
-this gypsy only wants to will one thing. 
+this gypsy only wants to will one thing: 
 a thing for being 
 witchbound because it sings. 
 
@@ -150,6 +170,13 @@ lovestruck for the rest of my
 I. 
 a he becomes a doer 
 over a her. 
+
+I. 
+hot silver in her hair. 
+this gypsy is here and there: 
+rich in moons; 
+a dark woman wonders my moods; 
+my eyes gleam away from a stare. 
 
            Trials 
            ------ 
@@ -212,13 +239,6 @@ his feathers.
            ------- 
 
 I. 
-weave my feelings into a cord. 
-tether me to her. 
-shake the excess weight 
-into the atmosphere to be 
- absorbed. 
-
-I. 
 of her only, 
 do I think highly 
 and feel wildly. 
@@ -245,6 +265,19 @@ this possession
 is my only possession. 
 the rest are payments 
 over previous intents. 
+
+I. 
+I wake up to the bluing skies, 
+lower temperatures raise the sun 
+ up. 
+I grab her in my hand, 
+like a baby. 
+
+I. 
+cursed to walk the blues. 
+cursed to love true. 
+cursed to stay aware 
+of a pair. 
 
            Appendix 
            -------- 
