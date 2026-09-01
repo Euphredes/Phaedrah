@@ -19,10 +19,10 @@ Location: Philadelphia, PA.
 Introduction                         - 
 Preface                              I. 
 Protection                           II. 
-Love                                 I. 
-Trials                               I. 
-Loyalty                              I. 
-Appendix                             I. 
+Love                                 XI. 
+Trials                               XIX. 
+Loyalty                              XXVIII. 
+Appendix                             XXXV. 
 
            Introduction 
            ------------ 
@@ -153,14 +153,14 @@ she is there.
            Love 
            ---- 
 
-I. 
+XI. 
 she owns the room patiently, 
 a purple and silver rockstar. 
 her voice is pitched to strum 
  my nerves, 
 a siren guarded by everyone. 
 
-I. 
+XII. 
 she finds me outside, 
 black as shade in the 
  sun. 
@@ -170,7 +170,7 @@ lifting my hopes high
  enough to carry my 
  loveaches. 
 
-I. 
+XIII. 
 the first time she 
  told my eyes 
  what she likes, 
@@ -178,7 +178,7 @@ my heart spiked:
 lovestruck for the 
  rest of my life. 
 
-I. 
+XIV. 
 hot silver in her 
  hair. 
 this gypsy is here 
@@ -189,7 +189,7 @@ a dark woman
 my eyes gleam away 
  from a stare. 
 
-I. 
+XV. 
 memories of her 
 are the most reliable 
  dose 
@@ -197,7 +197,7 @@ of happiness
 that made my attention 
  arose. 
 
-I. 
+XVI. 
 how could I leave these feelings 
  behind? 
 when they're so sore for her. 
@@ -205,13 +205,13 @@ when I can just keep her in mind.
 when I can give her what the space 
  is worth. 
 
-I. 
+XVII. 
 this gypsy only wants to will 
  one thing: 
 a thing for being 
 witchbound because it sings. 
 
-I. 
+XVIII. 
 hands to my chest, 
 to my belly. 
 incoming rest 
@@ -220,7 +220,7 @@ to satisfy.
            Trials 
            ------ 
 
-I. 
+XIX. 
 cell 114 in lenox, 
 decorated with mental 
  art. 
@@ -228,51 +228,51 @@ cradled by her,
 unsure of the spirit 
  at hand. 
 
-I. 
+XX. 
 I chase other behaviors 
 as I close in on Phaedrah. 
 
-I. 
+XXI. 
 madspells on the road. 
 lovespells where we hold. 
 to be her greatest effect. 
 to be her cherished. 
 to shed old molds. 
 
-I. 
+XXII. 
 voices and a host 
 are touch and go. 
 sight, taste, and smell 
 are dispensable. 
 twenty-four/seven composed. 
 
-I. 
+XXIII. 
 dear purple and silver 
 I'm your walking blues, 
 here and there. 
 stay with me and stay true. 
 
-I. 
+XXIV. 
 hunger for more 
 of what the street pours. 
 be hers evermore 
 as the rest nevermores. 
 
-I. 
+XXV. 
 the fool in me 
 doesn't focus on her 
 just to see: 
 I don't stop 
  delivering to her. 
 
-I. 
+XXVI. 
 the man in me 
 can't find work 
 better than 
 what these feelings 
  are worth. 
 
-I. 
+XXVII. 
 the voice shuffles 
 to other speakers, 
 like a bird ruffles 
@@ -281,7 +281,7 @@ his feathers.
            Loyalty 
            ------- 
 
-I. 
+XXVIII. 
 a mother 
 with plenty of time 
 to be bothered; 
@@ -289,28 +289,28 @@ and I climb
 to befriend, 
 if no other end. 
 
-I. 
+XXIX. 
 cursed to walk the blues. 
 cursed to love true. 
 cursed to stay aware 
 of a pair. 
 
-I. 
+XXX. 
 of her only, 
 do I think highly 
 and feel wildly. 
 
-I. 
+XXXI. 
 I feel her presence closely, 
    inwardly possessed. 
 I want no other nearby. 
 
-I. 
+XXXII. 
 hand in hand, we're together 
    without doubt. 
 no item keeping me busy. 
 
-I. 
+XXXIII. 
 I wake up to the bluing 
  skies, 
 lower temperatures raise 
@@ -318,7 +318,7 @@ lower temperatures raise
 I grab her in my hand, 
 like a baby. 
 
-I. 
+XXXIV. 
 there are seasons 
  for such and so. 
 there is breathing 
@@ -331,7 +331,7 @@ feelings for her are
            Appendix 
            -------- 
 
-I. 
+XXXV. 
 The following table lists structures for poems.  
 
 Poems    
