@@ -79,27 +79,6 @@ the invisible energy
  lulling us all. 
 
 IV. 
-I take all the 
- blame for this affair. 
-although blame is 
- not taken up by my 
- affairs: 
-this happens; 
-she is there. 
-
-V. 
-love demands too much. 
-so I keep her in my touch. 
-
-VI. 
-she resides in my 
- haptics 
-and acoustics, 
-to stay closest. 
-I bear the weight of my 
- interests. 
-
-VII. 
 weave my feelings into 
  a cord. 
 tether me to her. 
@@ -107,7 +86,7 @@ shake the excess weight
 into the atmosphere to be 
  absorbed. 
 
-VIII. 
+V. 
 straight hair 
 of purple and silver. 
 opal in her nose. 
@@ -124,7 +103,7 @@ I give gifts to evoke.
 let the people move 
  over. 
 
-IX. 
+VI. 
 as she blooms 
 the room, 
 dancing the full 
@@ -132,7 +111,7 @@ feelings to all,
 protect her from 
  doom. 
 
-X. 
+VII. 
 in the library, 
 each book is a wall 
 for her sanctuary. 
@@ -141,7 +120,7 @@ don't plant seeds
 in her mind to become 
  weeds. 
 
-XI. 
+VIII. 
 in group, 
 she is queen, 
 keeping everyone 
@@ -154,13 +133,25 @@ admiration
  secures her 
  ways. 
 
+IX. 
+she resides in my 
+ haptics 
+and acoustics, 
+to stay closest. 
+I bear the weight of my 
+ interests. 
+
+X. 
+I take all the 
+ blame for this affair. 
+although blame is 
+ not taken up by my 
+ affairs: 
+this happens; 
+she is there. 
+
            Love 
            ---- 
-
-I. 
-my anchor. 
-my answer. 
-my prayers. 
 
 I. 
 she owns the room patiently, 
@@ -168,26 +159,6 @@ a purple and silver rockstar.
 her voice is pitched to strum 
  my nerves, 
 a siren guarded by everyone. 
-
-I. 
-hands to my chest, 
-to my belly. 
-incoming rest 
-to satisfy. 
-
-I. 
-this gypsy only wants to will 
- one thing: 
-a thing for being 
-witchbound because it sings. 
-
-I. 
-memories of her 
-are the most reliable 
- dose 
-of happiness 
-that made my attention 
- arose. 
 
 I. 
 she finds me outside, 
@@ -200,33 +171,12 @@ lifting my hopes high
  loveaches. 
 
 I. 
-how could I leave these feelings 
- behind? 
-when they're so sore for her. 
-when I can just keep her in mind. 
-when I can give her what the space 
- is worth. 
-
-I. 
-I overuse her name. 
-nothing feels the same. 
-
-I. 
-reassurance is most compatible 
- with love. 
-sustaining what is or was. 
-
-I. 
 the first time she 
  told my eyes 
  what she likes, 
 my heart spiked: 
 lovestruck for the 
  rest of my life. 
-
-I. 
-a he becomes a doer 
-over a her. 
 
 I. 
 hot silver in her 
@@ -238,6 +188,34 @@ a dark woman
  wonders my moods; 
 my eyes gleam away 
  from a stare. 
+
+I. 
+memories of her 
+are the most reliable 
+ dose 
+of happiness 
+that made my attention 
+ arose. 
+
+I. 
+how could I leave these feelings 
+ behind? 
+when they're so sore for her. 
+when I can just keep her in mind. 
+when I can give her what the space 
+ is worth. 
+
+I. 
+this gypsy only wants to will 
+ one thing: 
+a thing for being 
+witchbound because it sings. 
+
+I. 
+hands to my chest, 
+to my belly. 
+incoming rest 
+to satisfy. 
 
            Trials 
            ------ 
