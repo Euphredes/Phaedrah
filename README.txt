@@ -332,14 +332,14 @@ feelings for her are
            -------- 
 
 XXXV. 
-The following table lists structures for poems.  
+The following table lists structures for poems. 
 
-Poems    
-        Irish        English        Spanish         Japanese
+Poems 
+        Irish        English        Spanish         Japanese 
              A              A              Noun             Five 
              A              B              Adjective        Two 
              B              A              Verb             Five 
              B              B              Adverb 
              A              C 
                             C 
-Pattern:     Endrhyme       Endrhyme       Speech           Meter
+Pattern:     Endrhyme       Endrhyme       Speech           Meter 
