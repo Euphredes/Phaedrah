@@ -114,11 +114,15 @@ opal in her nose.
 energy in her pose. 
 let her breathe more. 
 
-the hospital's best mover. 
-everyone wants to be closer. 
-I wear my heart like a rose. 
+the hospital's best 
+ mover. 
+everyone wants to be 
+ closer. 
+I wear my heart like 
+ a rose. 
 I give gifts to evoke. 
-let the people move over. 
+let the people move 
+ over. 
 
 IX. 
 as she blooms 
