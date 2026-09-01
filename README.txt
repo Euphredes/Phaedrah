@@ -147,7 +147,7 @@ I take all the
 although blame is 
  not taken up by my 
  affairs: 
-this happens; 
+this happens, 
 she is there. 
 
            Love 
@@ -249,12 +249,12 @@ twenty-four/seven composed.
 I. 
 dear purple and silver 
 I'm your walking blues, 
-here and there; 
+here and there. 
 stay with me and stay true. 
 
 I. 
 hunger for more 
-of what the street pours... 
+of what the street pours. 
 be hers evermore 
 as the rest nevermores. 
 
