@@ -137,6 +137,14 @@ don't plant seeds
 in her mind to become 
  weeds. 
 
+XI. 
+in group, 
+she is queen, 
+keeping everyone up. 
+all discussed and foreseen. 
+routine secures her pay. 
+admiration secures her ways. 
+
            Love 
            ---- 
 
