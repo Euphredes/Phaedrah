@@ -28,15 +28,15 @@ Appendix                             I.
            ------------ 
 
 Spells and poems over a witch, 
-Phaedrah. The work targets a singular goal: 
-Protection. The protection is built by me 
-such that I can depend on my feelings for 
-her with little to no backfire from her 
-end. The support for the protection is 
-my feelings, Love. The need for the 
-protection comes from the Trials. The 
-promises for the protection are in 
-Loyalty. 
+Phaedrah. The work targets a singular 
+goal: Protection. The protection is built 
+by me such that I can depend on my 
+feelings for her with little to no 
+backfire from her end. The support for 
+the protection is my feelings, Love. The 
+need for the protection comes from the 
+Trials. The promises for the protection 
+are in Loyalty. 
 
 These poems are directed at her, but 
 they are for me: for my end of this 
@@ -108,6 +108,13 @@ everyone wants to be closer.
 I wear my heart like a rose. 
 I give gifts to evoke. 
 let the people move over. 
+
+IX. 
+as she blooms 
+the room, 
+dancing the full 
+feelings to all, 
+protect her from doom. 
 
            Love 
            ---- 
