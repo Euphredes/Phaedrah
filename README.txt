@@ -17,7 +17,8 @@ Location: Philadelphia, PA.
            -------- 
 
 Introduction                         - 
-Protection                           I. 
+Preface                              I. 
+Protection                           II. 
 Love                                 I. 
 Trials                               I. 
 Loyalty                              I. 
@@ -42,16 +43,25 @@ These poems are directed at her, but
 they are for me: for my end of this 
 connection. 
 
+           Preface 
+           ------- 
+
+I. 
+My first practice with Phaedrah was to 
+be possessed: 
+Poet, Muse: 
+Phaedrah Morris. 
+
            Protection 
            ---------- 
 
-I. 
+II. 
 her name needs redirection 
 for her protection 
 in this connection, 
 I made for my satisfaction. 
 
-II. 
+III. 
 when I center into my emotions, 
 heavy for her. 
 moods that finalize my life, 
@@ -62,7 +72,7 @@ stronger than I've ever known.
 scatter these feelings into the water, 
 the invisible energy lulling us all. 
 
-III. 
+IV. 
 I take all the blame for this 
  affair. 
 although blame is not taken up 
@@ -70,7 +80,7 @@ although blame is not taken up
 this happens; 
 she is there. 
 
-IV. 
+V. 
 love demands too much. 
 so I keep her in my touch. 
 
