@@ -97,12 +97,17 @@ into the atmosphere to be
  absorbed. 
 
 VIII. 
-a mother 
-with plenty of time 
-to be bothered; 
-and I climb 
-to befriend, 
-if no other end. 
+straight hair 
+of purple and silver. 
+opal in her nose. 
+energy in her pose. 
+let her breathe more. 
+
+the hospital's best mover. 
+everyone wants to be closer. 
+I wear my heart like a rose. 
+I give gifts to evoke. 
+let the people move over. 
 
            Love 
            ---- 
@@ -278,6 +283,14 @@ cursed to walk the blues.
 cursed to love true. 
 cursed to stay aware 
 of a pair. 
+
+I. 
+a mother 
+with plenty of time 
+to be bothered; 
+and I climb 
+to befriend, 
+if no other end. 
 
            Appendix 
            -------- 
