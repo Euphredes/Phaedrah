@@ -46,7 +46,8 @@ connection.
            ------- 
 
 I. 
-My first practice with Phaedrah was to 
+My first practice 
+with Phaedrah was to 
 be possessed: 
 Poet, Muse: 
 Phaedrah, Morris. 
@@ -61,21 +62,28 @@ in this connection,
 I made for my satisfaction. 
 
 III. 
-when I center into my emotions, 
+when I center into 
+ my emotions, 
 heavy for her. 
-moods that finalize my life, 
-seducing me to live slow. 
+moods that finalize 
+ my life, 
+seducing me to live 
+ slow. 
 
 loveties won't let go, 
-stronger than I've ever known. 
-scatter these feelings into the water, 
-the invisible energy lulling us all. 
+stronger than I've ever 
+ known. 
+scatter these feelings 
+ into the water, 
+the invisible energy 
+ lulling us all. 
 
 IV. 
-I take all the blame for this 
- affair. 
-although blame is not taken up 
- by my affairs: 
+I take all the 
+ blame for this affair. 
+although blame is 
+ not taken up by my 
+ affairs: 
 this happens; 
 she is there. 
 
@@ -84,13 +92,16 @@ love demands too much.
 so I keep her in my touch. 
 
 VI. 
-she resides in my haptics 
+she resides in my 
+ haptics 
 and acoustics, 
 to stay closest. 
-I bear the weight of my interests. 
+I bear the weight of my 
+ interests. 
 
 VII. 
-weave my feelings into a cord. 
+weave my feelings into 
+ a cord. 
 tether me to her. 
 shake the excess weight 
 into the atmosphere to be 
@@ -114,7 +125,17 @@ as she blooms
 the room, 
 dancing the full 
 feelings to all, 
-protect her from doom. 
+protect her from 
+ doom. 
+
+X. 
+in the library, 
+each book is a wall 
+for her sanctuary. 
+the topics overall 
+don't plant seeds 
+in her mind to become 
+ weeds. 
 
            Love 
            ---- 
@@ -127,8 +148,8 @@ my prayers.
 I. 
 she owns the room patiently, 
 a purple and silver rockstar. 
-her voice is pitched to strum my 
- nerves, 
+her voice is pitched to strum 
+ my nerves, 
 a siren guarded by everyone. 
 
 I. 
@@ -138,22 +159,28 @@ incoming rest
 to satisfy. 
 
 I. 
-this gypsy only wants to will one thing: 
+this gypsy only wants to will 
+ one thing: 
 a thing for being 
 witchbound because it sings. 
 
 I. 
 memories of her 
-are the most reliable dose 
+are the most reliable 
+ dose 
 of happiness 
-that made my attention arose. 
+that made my attention 
+ arose. 
 
 I. 
 she finds me outside, 
-black as shade in the sun. 
-telling me how to deliver my gifts, 
-lifting my hopes high enough to 
- carry my loveaches. 
+black as shade in the 
+ sun. 
+telling me how to 
+ deliver my gifts, 
+lifting my hopes high 
+ enough to carry my 
+ loveaches. 
 
 I. 
 how could I leave these feelings 
@@ -173,31 +200,38 @@ reassurance is most compatible
 sustaining what is or was. 
 
 I. 
-the first time she told my eyes 
+the first time she 
+ told my eyes 
  what she likes, 
 my heart spiked: 
-lovestruck for the rest of my 
- life. 
+lovestruck for the 
+ rest of my life. 
 
 I. 
 a he becomes a doer 
 over a her. 
 
 I. 
-hot silver in her hair. 
-this gypsy is here and there: 
+hot silver in her 
+ hair. 
+this gypsy is here 
+ and there: 
 rich in moons; 
-a dark woman wonders my moods; 
-my eyes gleam away from a stare. 
+a dark woman 
+ wonders my moods; 
+my eyes gleam away 
+ from a stare. 
 
            Trials 
            ------ 
 
 I. 
 cell 114 in lenox, 
-decorated with mental art. 
+decorated with mental 
+ art. 
 cradled by her, 
-unsure of the spirit at hand. 
+unsure of the spirit 
+ at hand. 
 
 I. 
 madspells on the road. 
@@ -233,13 +267,15 @@ I.
 the fool in me 
 doesn't focus on her 
 just to see 
-I don't stop delivering to her. 
+I don't stop 
+ delivering to her. 
 
 I. 
 the man in me 
 can't find work 
 better than 
-what these feelings are worth. 
+what these feelings 
+ are worth. 
 
 I. 
 the voice shuffles 
@@ -256,11 +292,14 @@ do I think highly
 and feel wildly. 
 
 I. 
-there are seasons for such and so. 
-there is breathing for all to go. 
+there are seasons 
+ for such and so. 
+there is breathing 
+ for all to go. 
 put her in my breath, 
 unto death. 
-feelings for her are how I stroll. 
+feelings for her are 
+ how I stroll. 
 
 I. 
 I feel her presence closely, 
@@ -279,9 +318,10 @@ the rest are payments
 over previous intents. 
 
 I. 
-I wake up to the bluing skies, 
-lower temperatures raise the sun 
- up. 
+I wake up to the bluing 
+ skies, 
+lower temperatures raise 
+ the sun up. 
 I grab her in my hand, 
 like a baby. 
 
