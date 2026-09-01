@@ -13,15 +13,41 @@ Author: Nick Morris.
 Release: Tuesday, September 1st 2026. 
 Location: Philadelphia, PA. 
 
+
+           Practices
+           Affirmations 
+           Loyalty 
+
+           Internal 
+           Outside 
+           Indoors 
+           Trials 
+
+           Sore 
+           Memories 
+           Love 
+
+           Bridgewater 
+           Nonmaterial 
+
+
            Contents 
            -------- 
 
 Introduction                         - 
 Preface                              I. 
 Protection                           II. 
+ Nonmaterial                         II. 
+ Bridgewater                         II. 
 Love                                 XI. 
+ Memories                            XI. 
+ Sore                                XI. 
 Trials                               XIX. 
+ Outside                             XIX. 
+ Internal                            XIX. 
 Loyalty                              XXVIII. 
+ Affirmations                        XXVIII. 
+ Practices                           XXVIII. 
 Appendix                             XXXV. 
 
            Introduction 
@@ -55,6 +81,8 @@ Phaedrah, Morris.
            Protection 
            ---------- 
 
+           Nonmaterial 
+
 II. 
 her name needs redirection 
 for her protection 
@@ -85,6 +113,8 @@ tether me to her.
 shake the excess weight 
 into the atmosphere to be 
  absorbed. 
+
+           Bridgewater 
 
 V. 
 straight hair 
@@ -133,25 +163,10 @@ admiration
  secures her 
  ways. 
 
-IX. 
-she resides in my 
- haptics 
-and acoustics, 
-to stay closest. 
-I bear the weight of my 
- interests. 
-
-X. 
-I take all the 
- blame for this affair. 
-although blame is 
- not taken up by my 
- affairs: 
-this happens, 
-she is there. 
-
            Love 
            ---- 
+
+           Memories 
 
 XI. 
 she owns the room patiently, 
@@ -197,6 +212,8 @@ of happiness
 that made my attention 
  arose. 
 
+           Sore 
+
 XVI. 
 how could I leave these feelings 
  behind? 
@@ -220,17 +237,7 @@ to satisfy.
            Trials 
            ------ 
 
-XIX. 
-cell 114 in lenox, 
-decorated with mental 
- art. 
-cradled by her, 
-unsure of the spirit 
- at hand. 
-
-XX. 
-I chase other behaviors 
-as I close in on Phaedrah. 
+           Outside 
 
 XXI. 
 madspells on the road. 
@@ -258,6 +265,20 @@ of what the street pours.
 be hers evermore 
 as the rest nevermores. 
 
+           Internal 
+
+XIX. 
+cell 114 in lenox, 
+decorated with mental 
+ art. 
+cradled by her, 
+unsure of the spirit 
+ at hand. 
+
+XX. 
+I chase other behaviors 
+as I close in on Phaedrah. 
+
 XXV. 
 the fool in me 
 doesn't focus on her 
@@ -281,6 +302,8 @@ his feathers.
            Loyalty 
            ------- 
 
+           Affirmations 
+
 XXVIII. 
 a mother 
 with plenty of time 
@@ -300,6 +323,18 @@ of her only,
 do I think highly 
 and feel wildly. 
 
+XXXIV. 
+there are seasons 
+ for such and so. 
+there is breathing 
+ for all to go. 
+put her in my breath, 
+unto death. 
+feelings for her are 
+ how I stroll. 
+
+           Practices 
+
 XXXI. 
 I feel her presence closely, 
    inwardly possessed. 
@@ -318,15 +353,22 @@ lower temperatures raise
 I grab her in my hand, 
 like a baby. 
 
-XXXIV. 
-there are seasons 
- for such and so. 
-there is breathing 
- for all to go. 
-put her in my breath, 
-unto death. 
-feelings for her are 
- how I stroll. 
+IX. 
+she resides in my 
+ haptics 
+and acoustics, 
+to stay closest. 
+I bear the weight of my 
+ interests. 
+
+X. 
+I take all the 
+ blame for this affair. 
+although blame is 
+ not taken up by my 
+ affairs: 
+this happens, 
+she is there. 
 
            Appendix 
            -------- 
