@@ -229,17 +229,15 @@ unsure of the spirit
  at hand. 
 
 I. 
+I chase other behaviors 
+as I close in on Phaedrah. 
+
+I. 
 madspells on the road. 
 lovespells where we hold. 
 to be her greatest effect. 
 to be her cherished. 
 to shed old molds. 
-
-I. 
-hunger for more 
-of what the street pours... 
-be hers evermore 
-as the rest nevermores. 
 
 I. 
 voices and a host 
@@ -249,19 +247,21 @@ are dispensable.
 twenty-four/seven composed. 
 
 I. 
-I chase other behaviors 
-as I close in on Phaedrah. 
-
-I. 
 dear purple and silver 
 I'm your walking blues, 
 here and there; 
 stay with me and stay true. 
 
 I. 
+hunger for more 
+of what the street pours... 
+be hers evermore 
+as the rest nevermores. 
+
+I. 
 the fool in me 
 doesn't focus on her 
-just to see 
+just to see: 
 I don't stop 
  delivering to her. 
 
@@ -282,19 +282,23 @@ his feathers.
            ------- 
 
 I. 
+a mother 
+with plenty of time 
+to be bothered; 
+and I climb 
+to befriend, 
+if no other end. 
+
+I. 
+cursed to walk the blues. 
+cursed to love true. 
+cursed to stay aware 
+of a pair. 
+
+I. 
 of her only, 
 do I think highly 
 and feel wildly. 
-
-I. 
-there are seasons 
- for such and so. 
-there is breathing 
- for all to go. 
-put her in my breath, 
-unto death. 
-feelings for her are 
- how I stroll. 
 
 I. 
 I feel her presence closely, 
@@ -307,12 +311,6 @@ hand in hand, we're together
 no item keeping me busy. 
 
 I. 
-this possession 
-is my only possession. 
-the rest are payments 
-over previous intents. 
-
-I. 
 I wake up to the bluing 
  skies, 
 lower temperatures raise 
@@ -321,18 +319,14 @@ I grab her in my hand,
 like a baby. 
 
 I. 
-cursed to walk the blues. 
-cursed to love true. 
-cursed to stay aware 
-of a pair. 
-
-I. 
-a mother 
-with plenty of time 
-to be bothered; 
-and I climb 
-to befriend, 
-if no other end. 
+there are seasons 
+ for such and so. 
+there is breathing 
+ for all to go. 
+put her in my breath, 
+unto death. 
+feelings for her are 
+ how I stroll. 
 
            Appendix 
            -------- 
