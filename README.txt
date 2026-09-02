@@ -10,8 +10,37 @@ Licensing: Content in this text file
            Commons Attribution 4.0 
            International license. 
 Author: Nick Morris. 
-Release: Tuesday, September 1st 2026. 
+Release: Wednesday, September 2nd 2026. 
 Location: Philadelphia, PA. 
+
+
+
+
+
+           Word Bank 
+
+full of curls. 
+wing-filled eyes. 
+current of the wind. 
+trembles in the gold (of the sun on a hot day). 
+love, crystal and stone. 
+twists them like labyrinths. 
+arc of the sky. 
+down the river of the street. 
+with dust the wind shapes silver blades. 
+weave a large star to trap the sighs. 
+burnt darkness. 
+sleep with the echoes. 
+
+
+
+
+
+
+
+
+
+
 
            Contents 
            -------- 
@@ -26,7 +55,7 @@ Love                                 XI.
  Sore                                XI. 
 Trials                               XIX. 
  Outside                             XIX. 
- Internal                            XIX. 
+ Inward                              XIX. 
 Loyalty                              XXVIII. 
  Affirmations                        XXVIII. 
  Practices                           XXVIII. 
@@ -150,14 +179,14 @@ admiration
 
            Memories 
 
-XI. 
+IX. 
 she owns the room patiently, 
 a purple and silver rockstar. 
 her voice is pitched to strum 
  my nerves, 
 a siren guarded by everyone. 
 
-XII. 
+X. 
 she finds me outside, 
 black as shade in the 
  sun. 
@@ -167,7 +196,7 @@ lifting my hopes high
  enough to carry my 
  loveaches. 
 
-XIII. 
+XI. 
 the first time she 
  told my eyes 
  what she likes, 
@@ -175,7 +204,7 @@ my heart spiked:
 lovestruck for the 
  rest of my life. 
 
-XIV. 
+XII. 
 hot silver in her 
  hair. 
 this gypsy is here 
@@ -186,7 +215,7 @@ a dark woman
 my eyes gleam away 
  from a stare. 
 
-XV. 
+XIII. 
 memories of her 
 are the most reliable 
  dose 
@@ -196,7 +225,7 @@ that made my attention
 
            Sore 
 
-XVI. 
+XIV. 
 how could I leave these feelings 
  behind? 
 when they're so sore for her. 
@@ -204,13 +233,13 @@ when I can just keep her in mind.
 when I can give her what the space 
  is worth. 
 
-XVII. 
+XV. 
 this gypsy only wants to will 
  one thing: 
 a thing for being 
 witchbound because it sings. 
 
-XVIII. 
+XVI. 
 hands to my chest, 
 to my belly. 
 incoming rest 
@@ -221,35 +250,35 @@ to satisfy.
 
            Outside 
 
-XXI. 
+XVII. 
 madspells on the road. 
 lovespells where we hold. 
 to be her greatest effect. 
 to be her cherished. 
 to shed old molds. 
 
-XXII. 
+XVII. 
 voices and a host 
 are touch and go. 
 sight, taste, and smell 
 are dispensable. 
 twenty-four/seven composed. 
 
-XXIII. 
+XVIII. 
 dear purple and silver 
 I'm your walking blues, 
 here and there. 
 stay with me and stay true. 
 
-XXIV. 
+XIX. 
 hunger for more 
 of what the street pours. 
 be hers evermore 
 as the rest nevermores. 
 
-           Internal 
+           Inward 
 
-XIX. 
+XX. 
 cell 114 in lenox, 
 decorated with mental 
  art. 
@@ -257,25 +286,25 @@ cradled by her,
 unsure of the spirit 
  at hand. 
 
-XX. 
+XXI. 
 I chase other behaviors 
 as I close in on Phaedrah. 
 
-XXV. 
+XXII. 
 the fool in me 
 doesn't focus on her 
 just to see: 
 I don't stop 
  delivering to her. 
 
-XXVI. 
+XXIII. 
 the man in me 
 can't find work 
 better than 
 what these feelings 
  are worth. 
 
-XXVII. 
+XXIV. 
 the voice shuffles 
 to other speakers, 
 like a bird ruffles 
@@ -286,7 +315,7 @@ his feathers.
 
            Affirmations 
 
-XXVIII. 
+XXV. 
 a mother 
 with plenty of time 
 to be bothered; 
@@ -294,18 +323,18 @@ and I climb
 to befriend, 
 if no other end. 
 
-XXIX. 
+XXVI. 
 cursed to walk the blues. 
 cursed to love true. 
 cursed to stay aware 
 of a pair. 
 
-XXX. 
+XXVII. 
 of her only, 
 do I think highly 
 and feel wildly. 
 
-XXXIV. 
+XXVIII. 
 there are seasons 
  for such and so. 
 there is breathing 
@@ -317,17 +346,17 @@ feelings for her are
 
            Practices 
 
-XXXI. 
+XXIX. 
 I feel her presence closely, 
    inwardly possessed. 
 I want no other nearby. 
 
-XXXII. 
+XXX. 
 hand in hand, we're together 
    without doubt. 
 no item keeping me busy. 
 
-XXXIII. 
+XXXI. 
 I wake up to the bluing 
  skies, 
 lower temperatures raise 
@@ -335,7 +364,7 @@ lower temperatures raise
 I grab her in my hand, 
 like a baby. 
 
-IX. 
+XXXII. 
 she resides in my 
  haptics 
 and acoustics, 
@@ -343,7 +372,7 @@ to stay closest.
 I bear the weight of my 
  interests. 
 
-X. 
+XXXIII. 
 I take all the 
  blame for this affair. 
 although blame is 
@@ -355,7 +384,7 @@ she is there.
            Appendix 
            -------- 
 
-XXXV. 
+XXXIV. 
 The following table lists structures for poems. 
 
 Poems 
