@@ -43,17 +43,17 @@ Introduction                         -
 Preface                              I. 
 Protection                           II. 
  Nonmaterial                         II. 
- Bridgewater                         II. 
-Love                                 XI. 
- Memories                            XI. 
- Sore                                XI. 
-Trials                               XIX. 
- Outside                             XIX. 
- Inward                              XIX. 
-Loyalty                              XXVIII. 
- Affirmations                        XXVIII. 
- Practices                           XXVIII. 
-Appendix                             XXXV. 
+ Bridgewater                         V. 
+Love                                 IX. 
+ Memories                            IX. 
+ Sore                                XIV. 
+Trials                               XVII. 
+ Outside                             XVII. 
+ Inward                              XX. 
+Loyalty                              XXV. 
+ Affirmations                        XXV. 
+ Practices                           XXIX. 
+Appendix                             XXXIV. 
 
            Introduction 
            ------------ 
@@ -181,7 +181,7 @@ her voice is pitched to strum
 a siren guarded by everyone. 
 
 X. 
-she finds me outside, 
+she finds me , 
 black as shade in the 
  sun. 
 telling me how to 
