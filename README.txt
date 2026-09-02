@@ -13,10 +13,6 @@ Author: Nick Morris.
 Release: Wednesday, September 2nd 2026. 
 Location: Philadelphia, PA. 
 
-
-
-
-
            Word Bank 
 
 full of curls. 
@@ -31,16 +27,14 @@ with dust the wind shapes silver blades.
 weave a large star to trap the sighs. 
 burnt darkness. 
 sleep with the echoes. 
-
-
-
-
-
-
-
-
-
-
+a heart reflected in the wind. 
+cool spring's bank. 
+drooping trees. 
+wild crowd of young breezes. 
+hot heart. 
+ghost of harmony. 
+weeping bears fruit. 
+what lies dormant at its core? 
 
            Contents 
            -------- 
