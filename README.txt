@@ -216,7 +216,7 @@ to my belly.
 incoming rest 
 to satisfy. 
 
-I. 
+XVII. 
 she's made of love and crystal cells. 
 glow springs from her into the room. 
 her opal lips shine jewels of dawn. 
@@ -226,56 +226,56 @@ her opal lips shine jewels of dawn.
 
            Outside 
 
-XVII. 
+XVIII. 
 madspells on the road. 
 lovespells where we hold. 
 to be her greatest effect. 
 to be her cherished. 
 to shed old molds. 
 
-XVII. 
+XIX. 
 voices and a host 
 are touch and go. 
 sight, taste, and smell 
 are dispensable. 
 twenty-four/seven composed. 
 
-XVIII. 
+XX. 
 dear purple and silver 
 I'm your walking blues, 
 here and there. 
 stay with me and stay true. 
 
-XIX. 
+XXI. 
 hunger for more 
 of what the street pours. 
 be hers evermore 
 as the rest nevermores. 
 
-I. 
+XXII. 
 wind down the river of the street, 
 the ghost of harmony sows streets. 
 walk a large star to reap rewards. 
 
-I. 
+XXIII. 
 tremble in the gold heat midday, 
 sweat full of curls and wind-filled 
  eyes. 
 a cool spring's bank by the bottle.
 
-I. 
+XXIV. 
 love, book and dice in my knapsack, 
 twisting them like labyrinths inside. 
 asleep with echoes of writing. 
 
-I. 
+XXV. 
 by the dead highway of winter, 
 the landscape with arms spread wide, 
 the silence becomes the snow sphinx. 
 
            Inward 
 
-XX. 
+XXVI. 
 cell 114 in lenox, 
 decorated with mental 
  art. 
@@ -283,41 +283,41 @@ cradled by her,
 unsure of the spirit 
  at hand. 
 
-XXI. 
+XXVII. 
 I chase other behaviors 
 as I close in on Phaedrah. 
 
-XXII. 
+XXVIII. 
 the fool in me 
 doesn't focus on her 
 just to see: 
 I don't stop 
  delivering to her. 
 
-XXIII. 
+XXIX. 
 the man in me 
 can't find work 
 better than 
 what these feelings 
  are worth. 
 
-XXIV. 
+XXX. 
 the voice shuffles 
 to other speakers, 
 like a bird ruffles 
 his feathers. 
 
-I. 
+XXXI. 
 what lies dormant at a tear's core? 
 salt hydrates, water to bear fruit. 
 wind shapes a blade across my cheek. 
 
-I. 
+XXXII. 
 blues are reflected in the wind. 
 my hot heart, a crowd of breezes. 
 drooping trees in my mind sing songs. 
 
-I. 
+XXXIII. 
 the mood in my walk, a dark breeze. 
 my boots walk like a riverbed. 
 lighting another cigarette. 
@@ -327,7 +327,7 @@ lighting another cigarette.
 
            Affirmations 
 
-XXV. 
+XXXIV. 
 a mother 
 with plenty of time 
 to be bothered; 
@@ -335,18 +335,18 @@ and I climb
 to befriend, 
 if no other end. 
 
-XXVI. 
+XXXV. 
 cursed to walk the blues. 
 cursed to love true. 
 cursed to stay aware 
 of a pair. 
 
-XXVII. 
+XXXVI. 
 of her only, 
 do I think highly 
 and feel wildly. 
 
-XXVIII. 
+XXXVII. 
 there are seasons 
  for such and so. 
 there is breathing 
@@ -358,17 +358,17 @@ feelings for her are
 
            Practices 
 
-XXIX. 
+XXXVIII. 
 I feel her presence closely, 
    inwardly possessed. 
 I want no other nearby. 
 
-XXX. 
+XXXIX. 
 hand in hand, we're together 
    without doubt. 
 no item keeping me busy. 
 
-XXXI. 
+XL. 
 I wake up to the bluing 
  skies, 
 lower temperatures raise 
@@ -376,7 +376,7 @@ lower temperatures raise
 I grab her in my hand, 
 like a baby. 
 
-XXXII. 
+XLI. 
 she resides in my 
  haptics 
 and acoustics, 
@@ -384,7 +384,7 @@ to stay closest.
 I bear the weight of my 
  interests. 
 
-XXXIII. 
+XLII. 
 I take all the 
  blame for this affair. 
 although blame is 
@@ -396,7 +396,7 @@ she is there.
            Appendix 
            -------- 
 
-XXXIV. 
+XLIII. 
 The following table lists structures for poems. 
 
 Poems 
