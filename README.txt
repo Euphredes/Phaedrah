@@ -24,13 +24,13 @@ Protection                           II.
 Love                                 IX. 
  Memories                            IX. 
  Sore                                XIV. 
-Trials                               XVII. 
- Outside                             XVII. 
- Inward                              XX. 
-Loyalty                              XXV. 
- Affirmations                        XXV. 
- Practices                           XXIX. 
-Appendix                             XXXIV. 
+Trials                               XVIII. 
+ Outside                             XVIII. 
+ Inward                              XXVI. 
+Loyalty                              XXXIV. 
+ Affirmations                        XXXIV. 
+ Practices                           XXXVIII. 
+Appendix                             XLIII. 
 
            Introduction 
            ------------ 
@@ -45,10 +45,6 @@ the protection is my feelings, Love. The
 need for the protection comes from the 
 Trials. The promises for the protection 
 are in Loyalty. 
-
-These poems are directed at her, but 
-they are for me: for my end of this 
-connection. 
 
            Preface 
            ------- 
