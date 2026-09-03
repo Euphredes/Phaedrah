@@ -13,51 +13,6 @@ Author: Nick Morris.
 Release: Wednesday, September 2nd 2026. 
 Location: Philadelphia, PA. 
 
-           Word Bank 
-
-full of curls. 
-wing-filled eyes. 
-current of the wind. 
-trembles in the gold (of the sun on a hot day). 
-love, crystal and stone. 
-twists them like labyrinths. 
-arc of the sky. 
-down the river of the street. 
-with dust the wind shapes silver blades. 
-weave a large star to trap the sighs. 
-burnt darkness. 
-sleep with the echoes. 
-a heart reflected in the wind. 
-cool spring's bank. 
-drooping trees. 
-wild crowd of young breezes. 
-hot heart. 
-ghost of harmony. 
-weeping bears fruit. 
-what lies dormant at its core? 
-
-wind down the river of the street, 
-the ghost of harmony sows streets. 
-walk a large star to reap rewards. 
-
-tremble in the gold heat midday, 
-sweat full of curls and wind-filled 
- eyes. 
-a cool spring's bank by the bottle.
-
-love, book and dice in my knapsack, 
-twisting them like labyrinths inside. 
-asleep with echoes of writing. 
-
-what lies dormant at a tear's core? 
-salt hydrates, water to bear fruit. 
-wind shapes a blade across my cheek. 
-
-blues are reflected in the wind. 
-a hot heart, a crowd of breezes. 
-drooping trees in the mind sing songs. 
-
-
            Contents 
            -------- 
 
@@ -292,6 +247,22 @@ of what the street pours.
 be hers evermore 
 as the rest nevermores. 
 
+I. 
+wind down the river of the street, 
+the ghost of harmony sows streets. 
+walk a large star to reap rewards. 
+
+I. 
+tremble in the gold heat midday, 
+sweat full of curls and wind-filled 
+ eyes. 
+a cool spring's bank by the bottle.
+
+I. 
+love, book and dice in my knapsack, 
+twisting them like labyrinths inside. 
+asleep with echoes of writing. 
+
            Inward 
 
 XX. 
@@ -325,6 +296,16 @@ the voice shuffles
 to other speakers, 
 like a bird ruffles 
 his feathers. 
+
+I. 
+what lies dormant at a tear's core? 
+salt hydrates, water to bear fruit. 
+wind shapes a blade across my cheek. 
+
+I. 
+blues are reflected in the wind. 
+my hot heart, a crowd of breezes. 
+drooping trees in my mind sing songs. 
 
            Loyalty 
            ------- 
