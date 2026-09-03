@@ -154,7 +154,7 @@ her voice is pitched to strum
 a siren guarded by everyone. 
 
 X. 
-she finds me , 
+she finds me outside, 
 black as shade in the 
  sun. 
 telling me how to 
@@ -215,7 +215,7 @@ to satisfy.
 XVII. 
 she's made of love and crystal cells. 
 glow springs from her into the room. 
-her opal lips shine jewels of dawn. 
+her opal lips are jewels of dawn. 
 
            Trials 
            ------ 
