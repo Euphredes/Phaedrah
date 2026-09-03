@@ -88,7 +88,7 @@ IV.
 weave my feelings into 
  a cord. 
 tether me to her. 
-shake the excess weight 
+shake the excess w 
 into the atmosphere to be 
  absorbed. 
 
@@ -377,7 +377,7 @@ she resides in my
  haptics 
 and acoustics, 
 to stay closest. 
-I bear the weight of my 
+I bear the w of my 
  interests. 
 
 XLII. 
@@ -399,7 +399,7 @@ Poems
         Irish        English        Spanish         Japanese      Tap 
              A              A              Noun             Five     Eight 
              A              B              Adjective        Two      Eight 
-             B              A              Verb             Five 
+             B              A              Verb             Five     Eight 
              B              B              Adverb 
              A              C 
                             C 
