@@ -216,6 +216,11 @@ to my belly.
 incoming rest 
 to satisfy. 
 
+I. 
+she's made of love and crystal cells. 
+glow springs from her into the room. 
+her opal lips shine jewels of dawn. 
+
            Trials 
            ------ 
 
@@ -263,6 +268,11 @@ love, book and dice in my knapsack,
 twisting them like labyrinths inside. 
 asleep with echoes of writing. 
 
+I. 
+by the dead highway of winter, 
+the landscape with arms spread wide, 
+the silence becomes the snow sphinx. 
+
            Inward 
 
 XX. 
@@ -306,6 +316,11 @@ I.
 blues are reflected in the wind. 
 my hot heart, a crowd of breezes. 
 drooping trees in my mind sing songs. 
+
+I. 
+the mood in my walk, a dark breeze. 
+my boots walk like a riverbed. 
+lighting another cigarette. 
 
            Loyalty 
            ------- 
