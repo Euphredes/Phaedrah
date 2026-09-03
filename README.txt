@@ -36,6 +36,28 @@ ghost of harmony.
 weeping bears fruit. 
 what lies dormant at its core? 
 
+wind down the river of the street, 
+the ghost of harmony sows streets. 
+walk a large star to reap rewards. 
+
+tremble in the gold heat midday, 
+sweat full of curls and wind-filled 
+ eyes. 
+a cool spring's bank by the bottle.
+
+love, book and dice in my knapsack, 
+twisting them like labyrinths inside. 
+asleep with echoes of writing. 
+
+what lies dormant at a tear's core? 
+salt hydrates, water to bear fruit. 
+wind shapes a blade across my cheek. 
+
+blues are reflected in the wind. 
+a hot heart, a crowd of breezes. 
+drooping trees in the mind sing songs. 
+
+
            Contents 
            -------- 
 
