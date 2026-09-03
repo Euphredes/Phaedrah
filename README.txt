@@ -10,7 +10,7 @@ Licensing: Content in this text file
            Commons Attribution 4.0 
            International license. 
 Author: Nick Morris. 
-Release: Wednesday, September 2nd 2026. 
+Release: Thursday, September 3rd 2026. 
 Location: Philadelphia, PA. 
 
            Contents 
