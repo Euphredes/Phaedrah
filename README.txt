@@ -217,61 +217,66 @@ she's made of love and crystal cells.
 glow springs from her into the room. 
 her opal lips are jewels of dawn. 
 
+XVIII. 
+she makes me feel 
+small, safe, soft, 
+escaped, and lost. 
+
            Trials 
            ------ 
 
            Outside 
 
-XVIII. 
+XIX. 
 madspells on the road. 
 lovespells where we hold. 
 to be her greatest effect. 
 to be her cherished. 
 to shed old molds. 
 
-XIX. 
+XX. 
 voices and a host 
 are touch and go. 
 sight, taste, and smell 
 are dispensable. 
 twenty-four/seven composed. 
 
-XX. 
+XXI. 
 dear purple and silver 
 I'm your walking blues, 
 here and there. 
 stay with me and stay true. 
 
-XXI. 
+XXII. 
 hunger for more 
 of what the street pours. 
 be hers evermore 
 as the rest nevermores. 
 
-XXII. 
+XXIII. 
 wind down the river of the street, 
 the ghost of harmony sows streets. 
 walk a large star to reap rewards. 
 
-XXIII. 
+XXIV. 
 tremble in the gold heat midday, 
 sweat full of curls and wind-filled 
  eyes. 
 a cool spring's bank by the bottle.
 
-XXIV. 
+XXV. 
 love, book and dice in my knapsack, 
 twisting them like labyrinths inside. 
 asleep with echoes of writing. 
 
-XXV. 
+XXVI. 
 by the dead highway of winter, 
 the landscape with arms spread wide, 
 the silence becomes the snow sphinx. 
 
            Inward 
 
-XXVI. 
+XXVII. 
 cell 114 in lenox, 
 decorated with mental 
  art. 
@@ -279,41 +284,41 @@ cradled by her,
 unsure of the spirit 
  at hand. 
 
-XXVII. 
+XXVIII. 
 I chase other behaviors 
 as I close in on Phaedrah. 
 
-XXVIII. 
+XXIX. 
 the fool in me 
 doesn't focus on her 
 just to see: 
 I don't stop 
  delivering to her. 
 
-XXIX. 
+XXX. 
 the man in me 
 can't find work 
 better than 
 what these feelings 
  are worth. 
 
-XXX. 
+XXXI. 
 the voice shuffles 
 to other speakers, 
 like a bird ruffles 
 his feathers. 
 
-XXXI. 
+XXXII. 
 what lies dormant at a tear's core? 
 salt hydrates, water to bear fruit. 
 wind shapes a blade across my cheek. 
 
-XXXII. 
+XXXIII. 
 blues are reflected in the wind. 
 my hot heart, a crowd of breezes. 
 drooping trees in my mind sing songs. 
 
-XXXIII. 
+XXXIV. 
 the mood in my walk, a dark breeze. 
 my boots walk like a riverbed. 
 lighting another cigarette. 
@@ -323,7 +328,7 @@ lighting another cigarette.
 
            Affirmations 
 
-XXXIV. 
+XXXV. 
 a mother 
 with plenty of time 
 to be bothered; 
@@ -331,18 +336,18 @@ and I climb
 to befriend, 
 if no other end. 
 
-XXXV. 
+XXXVI. 
 cursed to walk the blues. 
 cursed to love true. 
 cursed to stay aware 
 of a pair. 
 
-XXXVI. 
+XXXVII. 
 of her only, 
 do I think highly 
 and feel wildly. 
 
-XXXVII. 
+XXXVIII. 
 there are seasons 
  for such and so. 
 there is breathing 
@@ -352,19 +357,31 @@ unto death.
 feelings for her are 
  how I stroll. 
 
+XXXIX. 
+keep my attention inward. 
+that joyful feeling is forward. 
+
+XL. 
+skin walker's chance: 
+let the sensations dance. 
+
+XLI. 
+nothing more to solve. 
+be with her above all. 
+
            Practices 
 
-XXXVIII. 
+XLII. 
 I feel her presence closely, 
    inwardly possessed. 
 I want no other nearby. 
 
-XXXIX. 
+XLIII. 
 hand in hand, we're together 
    without doubt. 
 no item keeping me busy. 
 
-XL. 
+XLIV. 
 I wake up to the bluing 
  skies, 
 lower temperatures raise 
@@ -372,7 +389,7 @@ lower temperatures raise
 I grab her in my hand, 
 like a baby. 
 
-XLI. 
+VL. 
 she resides in my 
  haptics 
 and acoustics, 
@@ -380,7 +397,7 @@ to stay closest.
 I bear the w of my 
  interests. 
 
-XLII. 
+VLI. 
 I take all the 
  blame for this affair. 
 although blame is 
@@ -392,15 +409,15 @@ she is there.
            Appendix 
            -------- 
 
-XLIII. 
+VLII. 
 The following table lists structures for poems. 
 
 Poems 
-        Irish        English        Spanish         Japanese      Tap 
-             A              A              Noun             Five     Eight 
-             A              B              Adjective        Two      Eight 
-             B              A              Verb             Five     Eight 
+        Irish        English        Spanish         Japanese     Dance      Targets 
+             A              A              Noun             Five      Eight        in 
+             A              B              Adjective        Two       Eight        of 
+             B              A              Verb             Five      Eight        by 
              B              B              Adverb 
              A              C 
                             C 
-Pattern:     Endrhyme       Endrhyme       Speech           Meter    Meter 
+Pattern:     Endrhyme       Endrhyme       Speech           Meter     Meter      Word 
