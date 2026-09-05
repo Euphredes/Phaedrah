@@ -394,7 +394,7 @@ she resides in my
  haptics 
 and acoustics, 
 to stay closest. 
-I bear the w of my 
+I bear the weight of my 
  interests. 
 
 VLI. 
