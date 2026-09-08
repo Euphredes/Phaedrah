@@ -17,20 +17,10 @@ Location: Philadelphia, PA.
            -------- 
 
 Introduction                         - 
-Preface                              I. 
 Protection                           II. 
- Nonmaterial                         II. 
- Bridgewater                         V. 
 Love                                 IX. 
- Memories                            IX. 
- Sore                                XIV. 
 Trials                               XVIII. 
- Outside                             XVIII. 
- Inward                              XXVI. 
 Loyalty                              XXXIV. 
- Affirmations                        XXXIV. 
- Practices                           XXXVIII. 
-Appendix                             XLIII. 
 
            Introduction 
            ------------ 
@@ -46,10 +36,8 @@ need for the protection comes from the
 Trials. The promises for the protection 
 are in Loyalty. 
 
-           Preface 
-           ------- 
+           * * * 
 
-I. 
 My first practice 
 with Phaedrah was to 
 be possessed: 
