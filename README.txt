@@ -421,3 +421,7 @@ Poems
              A              C 
                             C 
 Pattern:     Endrhyme       Endrhyme       Speech           Meter     Meter      Word 
+
+           ***** 
+            *** 
+             * 
