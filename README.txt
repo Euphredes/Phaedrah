@@ -3,7 +3,6 @@
            -------- 
 
            Publishing 
-           ---------- 
 
 Licensing: Content in this text file 
            is licensed under a Creative 
@@ -14,16 +13,21 @@ Release: Thursday, September 3rd 2026.
 Location: Philadelphia, PA. 
 
            Contents 
-           -------- 
 
-Introduction                         - 
-Protection                           II. 
-Love                                 IX. 
-Trials                               XVIII. 
-Loyalty                              XXXIV. 
+Introduction 
+Protection 
+Love 
+Trials 
+Loyalty 
 
            Introduction 
            ------------ 
+
+           Story 
+
+           Approach 
+
+           Execution 
 
 Spells and poems over a witch, 
 Phaedrah. The work targets a singular 
