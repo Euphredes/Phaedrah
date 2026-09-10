@@ -1,6 +1,8 @@
-           -------- 
-           Phaedrah 
-           -------- 
+
+
+           PHAEDRAH 
+           A PARTNER 
+
 
            Publishing 
 
@@ -11,6 +13,10 @@ Licensing: Content in this text file
 Author: Nick Morris. 
 Release: Thursday, September 3rd 2026. 
 Location: Philadelphia, PA. 
+
+           -------- 
+           Phaedrah 
+           -------- 
 
            Contents 
 
@@ -27,7 +33,7 @@ Loyalty
 
            Approach 
 
-           Execution 
+           Responsibilities 
 
 Spells and poems over a witch, 
 Phaedrah. The work targets a singular 
