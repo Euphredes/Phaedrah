@@ -214,6 +214,13 @@ she makes me feel
 small, safe, soft, 
 escaped, and lost. 
 
+           Invocation 
+
+           Acoustics 
+
+           Haptics 
+
+
            Trials 
            ------ 
 
@@ -314,6 +321,9 @@ XXXIV.
 the mood in my walk, a dark breeze. 
 my boots walk like a riverbed. 
 lighting another cigarette. 
+
+           Passage 
+
 
            Loyalty 
            ------- 
