@@ -421,14 +421,42 @@ VLII.
 The following table lists structures for poems. 
 
 Poems 
-        Irish        English        Spanish         Japanese     Dance         Targets   Spells       Ode       Song 
-             A              A              Noun             Five      Eight           in       Do        Respect    Fifty 
-             A              B              Adjective        Two       Eight           of       for       praise 
-             B              A              Verb             Five      Eight           by       Do        Respect 
-             B              B              Adverb                                              to        praise 
+        Irish        English
+             A              A
+             A              B
+             B              A
+             B              B
              A              C 
                             C 
-Pattern:     Endrhyme       Endrhyme       Speech           Words     Syllables       Use      Command   Worship    Rhymes 
+Pattern:     Endrhyme       Endrhyme
+
+        Spanish         Japanese
+               Noun             Five
+               Adjective        Two
+               Verb             Five
+               Adverb
+Pattern:       Speech           Words
+
+        Dance         Targets
+             Eight           in
+             Eight           of
+             Eight           by
+Pattern:     Syllables       Use
+
+        Spells       Ode
+              Do        Respect
+              for       praise
+              Do        Respect
+              to        praise 
+
+Pattern:      Command   Worship
+
+        Song         Ballad 
+            Sixteen        A 
+            Sixteen        B 
+            Sixteen        C 
+                           B 
+Pattern:    Endrhymes      Endrhyme 
 
            ***** 
             *** 
