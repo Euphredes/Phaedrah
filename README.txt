@@ -4,6 +4,9 @@
            A PARTNER 
 
 
+           A BOOK FOR THRONES 
+
+
            Publishing 
 
 Licensing: Content in this text file 
@@ -11,35 +14,13 @@ Licensing: Content in this text file
            Commons Attribution 4.0 
            International license. 
 Author: Nick Morris. 
-Release: Saturday, September 12th 2026. 
+Age: 33 Years Old. 
+Release: Tuesday, September 15th 2026. 
 Location: Philadelphia, PA. 
 
            -------- 
            Phaedrah 
            -------- 
-
-           Claimer 
-
-A thought happens when .it. wants to, 
-not when I want it. The closest 
-experience I'm abused by daily, 
-thoughts, are a stranger. I do not 
-know the who of my thinking. This 
-strikes fear into my authenticity. 
-I'll use silence, chanting, or humming 
-to cope: to overload my mind until some 
-reaction within me, that is strong 
-enough, breaks thorugh my self-imposed 
-monotony. That reaction is a choice 
-for me to make or not. I feel like a 
-gambler with a stranger, who I've 
-been closest to, gambling over my 
-life and death. This monster is the 
-famous, owld .it. 
-
-When a person dies, all that one goes 
-to the grave with is just one's own 
-stories: that is the person's bounty. 
 
            Contents 
 
@@ -52,60 +33,15 @@ Loyalty
            Introduction 
            ------------ 
 
-           Review 
-
-What is it? 
-Who is it for? 
-Where has it been? 
-Where is it going? 
-How is it done in two parts? 
-
-           Storyline 
-
-Opponent 
- Maslow's Pyramid 
-Game 
- Heist 
-Monster 
- Penal Colony 
-Outward 
- Physical Adventure 
-Inward 
- Obstacle Course 
-
-           Approach 
-
-Problem 
- Slitherlink Knapsack 
-Sets 
- Destinations 
- Traps 
- Items 
- Storages 
-Solver 
- Greedy 
-
-           Responsibilities 
-
-Mentally 
- Silence 
-Physically 
- Momentum 
-Spiritually 
- Focus 
-
-           * * * 
-
-Spells and poems over a witch, 
-Phaedrah. The work targets a singular 
-goal: Protection. The protection is built 
-by me such that I can depend on my 
-feelings for her with little to no 
-backfire from her end. The support for 
-the protection is my feelings, Love. The 
-need for the protection comes from the 
-Trials. The promises for the protection 
-are in Loyalty. 
+Poems over a witch, Phaedrah. The work 
+targets a singular goal: Protection. 
+The protection is built by me such that 
+I can depend on my feelings for her with 
+little to no backfire from her end. The 
+support for the protection is my feelings, 
+Love. The need for the protection comes 
+from the Trials. The promises for the 
+protection are in Loyalty. 
 
            * * * 
 
