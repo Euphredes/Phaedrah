@@ -19,8 +19,8 @@ Licensing: Content in this text file
            International license. 
 Author: Nick Morris. 
 Age: 33 Years Old. 
-Release: Tuesday, September 15th 2026. 
-Location: Philadelphia, PA. 
+Release: Friday, September 18th 2026. 
+Location: Cherry Hill, NJ. 
 
            -------- 
            Phaedrah 
